@@ -1,0 +1,1 @@
+# ADG-Maio-iOS-Adapter
